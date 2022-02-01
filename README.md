@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Catoon.Hex#8344
+- 👀 I’m interested in ...Coding, and 3D design
+- 🌱 I’m currently in Middle School
+- 💞️ I’m looking to collaborate on ... Many Coding and 3D design products
+- 📫 How to reach me ...Discord: Catoon.Hex#8344
